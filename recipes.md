@@ -113,3 +113,25 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Special Brownies 
+
+Ingredients:
+- 1/4 cup natural cocoa powder 
+- 1/2 cup Cannabutter 
+- 1/2 cup chopped dark chocolate 
+- 1 tablespoon molasses 
+- 1 teaspoon vanilla extract 
+- 1/4 teaspoon kosher salt 
+- 2 large eggs 
+- 3/4 cup all-purpose flour 
+- 1/2 cup chopped toased nuts   
+
+Instructions: 
+1. Make the cannabutter, following the quantities listed above and my step-by-step guide linked in the Author Notes.
+2. Butter an 8x8-inch pan, then dust with cocoa. Heat the oven to 350°F (177°C).
+3. In a bain marie (or in the microwave in 10-second intervals), melt the cannabutter and dark chocolate. Remove the bowl from the heat, then add the sugar, molasses, vanilla, and salt.
+4. Add one egg at a time, mixing well after each. Beat for about 5 minutes, until a 5-second ribbon forms on the top of the batter when you lift the whisk. Stir in the chopped nuts (if you’re using them). Sift or whisk the flour with the cocoa powder, then add to the chocolate mixture. Combine just until the flour disappears (don’t overmix).
+5. Pour the batter into the pan and place in the center of the oven. Bake for about 25 minutes, until a glossy top forms and starts to crack. Keep an eye on the edges, they will firm up first. To check, insert a toothpick near the corner—it should have a few moist crumbs.
+6. Let cool on a wire rack for at least 10 minutes before cutting into 16 brownies. (If you’d like—and if your pan isn’t glass—you can plunge the pan into cold water immediately out of the oven. The temperature shock achieves a chewy crust while maintaining the gooey center, a tip I learned from Eric Kim.)
+7. Store the brownies in an airtight container for up to a week. For longer storage, cut and freeze the brownies, then warm up in the microwave or oven before serving.
